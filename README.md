@@ -1,3 +1,4 @@
-# senai-versoes-colaboracoes
+﻿# senai-versoes-colaboracoes
 Repositório de versões e colaborações
-senai lindo
+senai gay 
+eu amo cauet lindo, amor da minha vida, meu calvinho
